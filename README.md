@@ -3,6 +3,7 @@
 - my discord: kau#0070
 - studying pedagogy
 - I'm the reason for his smile today
+-AMO O  ANDREIW 
 <img align="right" alt="kaugif" src="https://cdn.discordapp.com/attachments/856885895148077083/883421395151896627/ezgif.com-gif-maker.gif">
 
 ##
